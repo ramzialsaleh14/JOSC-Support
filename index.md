@@ -6,4 +6,4 @@ People who respond to requests also have that option in our app , they can view 
 
 ### Support or Contact
 
-You can reach us at by email at ramzialsaleh14@gmail.com , or by phone at 0792093186.
+You can reach us at by email at ramzialsaleh14@gmail.com , Or by phone at 0792093186.
